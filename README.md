@@ -22,3 +22,5 @@ Link : https://www.instagram.com/reel/C63eM3irGPN/?igsh=a3pscGljMDJrbTR5
 **Link Jurnal :**
 https://drive.google.com/drive/folders/1QHYptpLUnvEjauFMR4VMo6bsZ5b6QwLa
 
+**Link Demo**
+https://youtu.be/7ghF-8kPfpg?si=_PNa-9_7AzEpE5_3
